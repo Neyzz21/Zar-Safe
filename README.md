@@ -42,7 +42,7 @@
 
 ## Proof
 
-<a href='https://postimg.cc/Ffr4Fngq' target='_blank'><img src='https://i.postimg.cc/Ffr4Fngq/Screenshot-2022-06-17-06-54-35-975-com-android-chrome.jpg' border='0' alt='Screenshot-2022-06-17-06-54-35-975-com-android-chrome'/></a>
 
+[![Screenshot-2022-06-17-06-54-35-975-com-android-chrome.jpg](https://i.postimg.cc/YSgq354p/Screenshot-2022-06-17-06-54-35-975-com-android-chrome.jpg)](https://postimg.cc/Ffr4Fngq)
 
 
