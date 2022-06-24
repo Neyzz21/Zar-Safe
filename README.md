@@ -42,6 +42,6 @@
 
 ## Proof
 
-![ss]([![IMG-20220624-112318.jpg](https://i.postimg.cc/fR5qtyWX/IMG-20220624-112318.jpg)](https://postimg.cc/JsD5S1k4))
 
+[![IMG-20220624-112318.jpg](https://i.postimg.cc/fR5qtyWX/IMG-20220624-112318.jpg)](https://postimg.cc/JsD5S1k4)
 
